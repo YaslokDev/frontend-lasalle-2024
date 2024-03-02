@@ -11,3 +11,5 @@ Decidió aventurarse por el paisaje terrestre, donde árboles susurrantes le ofr
 Los humanos, intrigados por la presencia de este ser de ojos parpadeantes y tentáculos incandescentes, decidieron ofrecerle un banquete de emociones: risas desbocadas, lágrimas de éter y abrazos de luz estelar. El extraterrestre, confundido pero encantado, decidió unirse a la danza cósmica de la vida en la Tierra, donde el absurdo y la belleza se entrelazan en un vals intergaláctico.
 
 Y así, entre sonrisas de constelaciones y suspiros de nebulosas, el extraterrestre encontró un hogar en este planeta azul, donde la locura es la moneda de cambio y la imaginación es la nave que nos lleva a través de los confines del universo. Porque al final del día, ¿qué es la realidad sino la fumada sin sentido de un sueño cósmico?
+
+More content
